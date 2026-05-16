@@ -16,7 +16,7 @@ Rio de Janeiro, atendendo cliente em São Paulo de forma híbrida desde 2025. Ci
 
 ## Contato
 
-LinkedIn em https://www.linkedin.com/in/christianbelga
+LinkedIn em https://www.linkedin.com/in/christian-belga-a1146a75
 
 Email csbelga em gmail.
 
