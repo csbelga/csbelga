@@ -1,6 +1,6 @@
 # Christian Belga
 
-Growth Marketing senior, onze anos. Construo sistemas autônomos de aquisição em verticais high-ticket.
+Growth Marketing senior, onze anos. Construo sistemas autônomos de aquisição em verticais high-ticket. Sete verticais na carreira, do private banking suíço ao B2B industrial, passando por saúde e estética premium, educação privada, imobiliário de alto padrão, SaaS e marcas digitais multi-conta. 
 
 Clínica de estética high-ticket no Rio, um milhão e novecentos mil em quatro meses. B2B industrial de proteção anticorrosiva com ticket acima de um milhão, de um cliente por trimestre para um por semana. V4 Company, custo de aquisição menos trinta e cinco por cento, conversão de lead qualificado para oportunidade mais quarenta por cento. Agência pessoal operando orçamentos de sessenta mil reais por dia, custo por lead de quarenta e sete reais para quatro reais.
 
